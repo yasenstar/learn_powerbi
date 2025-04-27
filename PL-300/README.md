@@ -16,3 +16,5 @@ The demo videos will be preapre and shared in following site soon:
 Keep checking here on the progress, stay tunes.
 
 And, may you good luck for getting this certification!
+
+Remember: __Learning Is A Journey, Not Destination!__
